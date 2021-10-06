@@ -1,0 +1,5 @@
+- Hi, I’m @Xlial
+- I’m interested in doing concept art and drawing for video games.
+- I’m currently learning art at an art college.
+- I’m looking to collaborate on a game jam.
+- The easiest way to reach me is on discord my tag is: Xlial#5110 or mail me at: leilaleilarose@gmail.com
