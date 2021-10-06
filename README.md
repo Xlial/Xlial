@@ -1,4 +1,4 @@
-- Hi, I’m @Xlial
+- Hi, I’m Leila
 - I’m interested in doing concept art and drawing for video games.
 - I’m currently learning art at an art college.
 - I’m looking to collaborate on a game jam.
